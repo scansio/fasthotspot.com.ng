@@ -1,2 +1,2 @@
 # fasthotspot.com.ng
-fasthotspot.com.ng
+https://fasthotspot.com.ng
